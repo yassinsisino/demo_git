@@ -1,0 +1,1 @@
+Une fichier texte de qualité
